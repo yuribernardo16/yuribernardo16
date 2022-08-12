@@ -1,0 +1,5 @@
+- 👋 opa suave? vulgo yuri
+- 👀to aqui pro trabalho q o sor pediu
+- 🌱to tentando aprender computação
+- 💞estou num relacionamento sério com a academia
+- 📫 olha pela janela
